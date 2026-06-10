@@ -1,8 +1,10 @@
-# Um projeto para um Salve coletivo da turma do 2B - 2026
+# Um projeto para um Salve Coletivo da turma do 2ºB - 2026
 
 ## Professores
+
 #### Bruno - [@brunohuffenbaecher](github.com/brunohuffenbaecher) - Um salve pro melhor segundo ano! :)
-#### Gersão - 
+
+#### Gersão -
 
 ## Alunos
 
