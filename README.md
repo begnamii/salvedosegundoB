@@ -12,14 +12,14 @@
 2. Nome - Seu Salve
 3. Nome - Seu Salve
 4. Nome - Seu Salve
-5. Nome - Seu Salve
+5. Lara - Oii
 6. Nome - Seu Salve
 7. Nome - Seu Salve
-8. Nome - Seu Salve
+8. Davi TM - Salve rapaziada e desculpas ao bruno e gersão.
 9. Terassi - Salve tropa
 10. Nome - Seu Salve
-11. Nome - Seu Salve
-12. Nome - Seu Salve
+11. Helena Octaviano - Salve salaaaa 👍🏻
+12. Gustavo (TIRSU) - Boa, 👍✌️
 13. Nome - Seu Salve
 14. Nome - Seu Salve
 15. Nome - Seu Salve
@@ -36,7 +36,7 @@
 26. Nome - Seu Salve
 27. Nome - Seu Salve
 28. Nome - Seu Salve
-29. Nome - Seu Salve
+29. Vithor - Seu Salve - Salve 2°B
 30. Nome - Seu Salve
 31. Nome - Seu Salve
 32. Nome - Seu Salve
